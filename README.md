@@ -20,3 +20,8 @@
 - Darren Ding, studying and practise
 - Darren Ding, go for it
 - Darren Ding, just do it
+
+#### Below is 想想君的看法
+
+- 兴爷 好帅啊
+- 兴爷 好酷啊
