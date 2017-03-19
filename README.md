@@ -13,3 +13,8 @@
 
 - 你484傻？
 - 你是**猴子**派来的逗逼吗？
+
+#### Below is 兴爷的看法
+
+- Darren Ding, get up quickly
+- Darren Ding, studying and practise!!!
