@@ -17,4 +17,6 @@
 #### Below is 兴爷的看法
 
 - Darren Ding, get up quickly
-- Darren Ding, studying and practise!!!
+- Darren Ding, studying and practise
+- Darren Ding, go for it
+- Darren Ding, just do it
